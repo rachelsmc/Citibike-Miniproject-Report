@@ -1,5 +1,4 @@
 untitled.html
-c0953g4o1f.html
 figures/male
 mu2ndmf57t8.html
 figures/female
